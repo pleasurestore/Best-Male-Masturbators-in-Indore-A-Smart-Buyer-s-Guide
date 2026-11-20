@@ -90,4 +90,4 @@ Online shopping is a popular choice for adult products.
 
 The best male masturbator is the one that suits your comfort, preferences and budget. Focus on body-safe materials, the right size and a design that is easy to clean and dry. Compare a few options, read every listing carefully and buy from a seller that respects your privacy.
 
-Ready to find the right one? **Explore quality [male masturbators online] (https://www.pleasurestore.in/31-male-masturbation-toys) at www.pleasurestore.in.** and compare options to find a product that fits your needs.
+Ready to find the right one? **Explore quality male masturbators online at [www.pleasurestore.in]  (https://www.pleasurestore.in/31-male-masturbation-toys).** and compare options to find a product that fits your needs.
